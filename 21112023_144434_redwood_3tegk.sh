@@ -1,0 +1,1 @@
+Over one million Pet Rocks were sold in 1975, makine Gary Dahl, of Los Gatos, California, a millionaire. He got the idea while joking with friends about his pet that was easy to take care of, which was a rock
